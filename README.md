@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @serg274
 - 👀 I’m interested in la informatica
-- 🌱 I’m currently learning siendo autodidacta
+- 🌱 Currently and I am always learning being self-taught.
 - 💞️ I’m looking to collaborate on proyectos 
 - 📫 How to reach me so281297@gmail.com
 
